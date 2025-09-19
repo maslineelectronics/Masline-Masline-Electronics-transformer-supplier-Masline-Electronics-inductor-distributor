@@ -1,0 +1,2 @@
+# Masline-Masline-Electronics-transformer-supplier-Masline-Electronics-inductor-distributor
+Masline Electronics is a trusted transformer supplier and inductor distributor, offering authentic, manufacturer-approved components at competitive prices. With vast inventory, bulk discounts, and fast global shipping, Masline supports engineers, OEMs, and procurement teams with reliable sourcing solutions.
